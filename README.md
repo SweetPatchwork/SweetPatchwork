@@ -1,4 +1,4 @@
-<p align="center"><img width="1280" height="427" alt="12842" src="https://github.com/user-attachments/assets/a2aa8847-a75b-41a4-8376-df22d9f6525c" /> <img width="20" height="20" alt="13028" src="https://github.com/user-attachments/assets/f66b9787-9598-4a30-b487-472fd2f929fe" />
+<p align="center"><img width="1280" height="427" alt="12842" src="https://github.com/user-attachments/assets/a2aa8847-a75b-41a4-8376-df22d9f6525c" />
 
 
 
@@ -9,9 +9,7 @@
 
 <p align="center">𓏲 ๋࣭  ࣪ ˖⠀ 𝓝eptune / Eclipsia. <img width="20" height="20" alt="13029" src="https://github.com/user-attachments/assets/de001809-d532-4e02-8827-18dae6aa09d9" />
 
-<p align="center">໒゛Fossilberry 4ever!!
-
-<p align="center"><img width="52" height="18" alt="13036" src="https://github.com/user-attachments/assets/d22fc951-3c95-48de-9fed-a8b0ac4574b4" />
+<p align="center">໒゛Fossilberry 4ever!! ♥︎
 
 
 
